@@ -51,3 +51,10 @@ Para dúvidas, sugestões ou contribuições:
 - 🔗 LinkedIn: [João Igor](https://www.linkedin.com/in/joao-igor-25b090250/)
 ---
 
+<img width="350" height="289" alt="Screenshot_2" src="https://github.com/user-attachments/assets/8e348296-bf38-484e-af54-369804fde378" />
+<img width="1366" height="767" alt="Screenshot_3" src="https://github.com/user-attachments/assets/65209703-68c6-4ff2-9c7b-59e9431a39ef" />
+
+<img width="237" height="490" alt="Screenshot_5" src="https://github.com/user-attachments/assets/a46a0c8a-50d8-4839-8166-cb783069ba35" />
+<img width="227" height="491" alt="Screenshot_6" src="https://github.com/user-attachments/assets/70935c95-7c1c-4eb4-abf4-c0eb692fa97d" />
+
+
